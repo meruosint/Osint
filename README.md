@@ -1,4 +1,5 @@
 # Osint
+simple OSINT GUYS!!
 SIMPLE THINGS- DON'T COMPLICATE THINGS YOU GUY!!
 Here is a piece for you!
 
